@@ -1,1 +1,1 @@
-EliGra Integrated Services Hub is a trusted community support organisation dedicated to enhancing the wellbeing and quality of life of individuals, families, older adults, and vulnerable members of the community. We provide a wide range of person-centred services, including wellbeing programmes, companionship, advocacy, domestic cleaning, transport assistance, and practical day-to-day support. Through compassionate care and community engagement, we empower people to maintain their independence, promote social inclusion, and live healthier, more fulfilling lives.
+
